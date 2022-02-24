@@ -1,0 +1,1 @@
+псевдоним на kaggle - Galuzin8ilya
